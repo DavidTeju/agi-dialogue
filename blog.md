@@ -82,4 +82,4 @@ I do not have a confident answer. You have argued me into a corner, and I suspec
 
 ---
 
-*A dialogue between David and Claude, February 2026*
+*A dialogue between Femi and Claude, February 2026*
